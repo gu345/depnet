@@ -32,3 +32,4 @@
 <p dir="auto"><a href="https://sites.google.com/view/fanghong9/域名报毒检测" rel="nofollow">域名报毒检测</a></p>
 <p dir="auto"><a href="https://sites.google.com/view/fanghong9/域名拦截检测" rel="nofollow">域名拦截检测</a></p>
 <p dir="auto"><a href="https://sites.google.com/view/fanghong9/海外域名检测" rel="nofollow">海外域名检测</a></p>
+<p dir="auto"><a href="https://sougou6.com" rel="nofollow">搜狗输入法下载</a></p>
